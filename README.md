@@ -1,2 +1,0 @@
-# Avinya-Media
-website 
